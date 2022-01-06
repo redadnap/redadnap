@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @redadnap !!! :)))
+- 👀 I’m interested in abime and video games!
+- 🌱 I’m currently learning how to devolp games :DDD
+- I'm just a beginner looking on how to code!
